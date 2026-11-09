@@ -1,0 +1,2 @@
+# nuriklegends.github.io
+Platform
